@@ -1,3 +1,3 @@
 # JJJ
 
-batata frita
+batata frita salgada
